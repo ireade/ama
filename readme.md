@@ -1,4 +1,4 @@
-![Ire Aderinokun](https://pbs.twimg.com/profile_images/1068949150648188929/8SEFkLpt_400x400.jpg)
+<img alt="Cartoon profile of Ire" src="https://pbs.twimg.com/profile_images/1068949150648188929/8SEFkLpt_400x400.jpg" width="200">
 
 # Ask me anything!
 
